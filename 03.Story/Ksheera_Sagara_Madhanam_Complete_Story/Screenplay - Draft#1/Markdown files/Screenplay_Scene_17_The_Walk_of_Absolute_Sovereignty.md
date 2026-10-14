@@ -1,0 +1,81 @@
+# 🎬 SCREENPLAY SCENE 17: THE WALK OF ABSOLUTE SOVEREIGNTY
+
+**EXT. THE SURFACE OF THE OCEAN OF MILK - CONTINUOUS**
+
+The clamor of the suitors dies away as GODDESS MAHALAKSHMI moves.
+
+She raises both hands. 
+From the heart of the golden lotus, She lifts the **VANAMALA**—an unfading, fragrant garland of deep blue lotuses, Parijata blossoms, and wild forest flowers. 
+Humming celestial bees circle the blossoms, drunk on its heavenly perfume.
+
+MAHALAKSHMI STEPS DOWN OFF THE LOTUS.
+
+Her bare, pink-soled feet touch the surface of the golden water. 
+The water does not break—it supports Her steps with gentle, golden ripples. 
+
+Holding the sacred garland between Her slender fingers, She begins Her SLOW, MAJESTIC WALK OF SOVEREIGNTY down the line of assembled suitors.
+
+TOTAL, BREATHLESS SILENCE DESCENDS ON THE THREE WORLDS.
+The only sound is the faint, musical chiming of Her golden anklets: *chink... chink... chink...*
+
+SHE GLIDES BEFORE SAGE DURVASA AND THE RISHIS.
+Durvasa stands proud, waiting for the garland.
+Mahalakshmi’s eyes meet his. 
+
+                    LAKSHMI (V.O.)
+          (internal, echoing across space)
+     You possess vast ascetic heat, Brahmarshi... yet
+     your anger is an untamed fire. You have tapas,
+     but no unshakeable peace. Grace cannot dwell in
+     a vessel cracked by rage.
+
+She glides past him. Durvasa’s staff lowers; his proud eyes blink in shock.
+
+SHE GLIDES BEFORE LORD BRAHMA.
+Brahma smiles with grandfatherly affection, inclining his four heads.
+
+                    LAKSHMI (V.O.) (CONT'D)
+     Venerable Grandfather... You are the seed-giver
+     of forms, bound to the duty of cosmic progeny
+     and detachment. You are the architect, not the
+     companion of dynamic preservation.
+
+She bows Her head respectfully and glides past.
+
+SHE GLIDES BEFORE LORD SHIVA.
+Mahadeva sits upon the shore, His blue throat gleaming, Parvati at His side. His eyes hold zero desire.
+
+                    LAKSHMI (V.O.) (CONT'D)
+     O Mahadeva... You are supremely pure, beyond all
+     need, complete in Your own stillness. You are
+     already wedded to the burning ground and to the
+     Mountain’s Daughter.
+
+Shiva nods gently in silent blessing as She passes.
+
+SHE GLIDES BEFORE INDRA.
+Indra stands tall, chest puffed, offering the diamond sceptre of heaven.
+
+                    LAKSHMI (V.O.) (CONT'D)
+     And thou, Purandara... Thou hast majesty, yet thy
+     heart is fickle as desert wind. Intoxicated in
+     victory, a coward in defeat. Thou seekest Me to
+     cower behind My light, not to champion Dharma.
+
+She walks past him without pausing. 
+Indra’s arms drop to his sides, his face turning pale with devastating humiliation.
+
+SHE GLIDES BEFORE EMPEROR BALI AND THE ASURAS.
+Bali stands with hand on his sword, jaw rigid, breathing heavily.
+
+                    LAKSHMI (V.O.) (CONT'D)
+     And thou, Emperor of Titans. Thy courage is
+     immense, thy generosity vast... yet thy soul is
+     enslaved to raw ego. Thou seekest to possess Me
+     as a conqueror possesses a province. But Grace
+     is no man’s slave.
+
+She walks past the Asuras. 
+Bali’s hand slips from his hilt. The Asura generals stand frozen in stunned disbelief as Her golden shadow leaves them behind.
+
+She has rejected the entire power structure of the universe.

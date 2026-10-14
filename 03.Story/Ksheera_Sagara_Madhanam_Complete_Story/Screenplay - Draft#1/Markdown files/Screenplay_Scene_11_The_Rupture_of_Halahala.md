@@ -1,0 +1,73 @@
+# 🎬 SCREENPLAY SCENE 11: THE RUPTURE OF HALAHALA
+
+**EXT. THE BOILING OCEAN OF MILK - CONTINUOUS**
+
+The churning has reached blinding, supersonic speed. 
+The white waters are violently whipping into boiling froth. Lightning bolts of raw kinetic energy arc between the mountain and the clouds.
+
+AND THEN—
+
+A sickening, oily, subterranean GROAN.
+
+Deep below, the friction between the mountain, the ocean depths, and Vasuki’s tortured internal organs ruptures the primordial under-veins of reality.
+
+BURSTING THROUGH THE SURFACE—
+
+A jet of thick, viscous, BLACK-BLUE SLUDGE.
+It does not mix with the water. It combusts into a towering wall of corrosive, violet-black smoke.
+
+HALAHALA. THE PRIMORDIAL POISON (KALAKUTA).
+
+The smell hits first: the stench of charred bone, sulfur, rotting flesh, and cosmic decay. 
+The fumes expand across the horizon with terrifying speed.
+
+ON THE SHORES—
+
+A flock of celestial swans flying high in the stratosphere enters the fringe of the smoke. 
+Their feathers instantly dissolve. Their charred skeletons plummet into the surf.
+
+IN THE ASURA RANKS—
+
+The vanguard of Danava warriors drops their grip on Vasuki. 
+They claw at their own throats, screaming. 
+Their bronze armor turns green and melts against their flesh. They vomit black bile, their eyes turning milky blind.
+
+                    NAMUCHI
+          (screaming, stumbling backward)
+     MY FLESH IS ON FIRE! IT’S EATING MY BONES!
+
+                    BALI
+          (covering his mouth with an armored cloak)
+     FALL BACK! RETREAT TO THE CLIFFS!
+
+IN THE DEVA RANKS—
+
+Indra, Agni, and Vayu drop to their knees. 
+The air burns their lungs like boiling acid. 
+The milky sea itself begins to curdle into toxic, smoking black pitch.
+
+                    INDRA
+          (coughing blood, looking skyward)
+     Lord Narayana! Where is the nectar? You promised
+     us life—this is the extinction of the cosmos!
+
+LORD BRAHMA’S voice thunders from the edge of the sky, vibrating with cosmic dread:
+
+                    BRAHMA
+     This is Kalakuta! The accumulated poison of all
+     material ambition! 
+     No weapon can destroy it! No mantra can cleanse
+     it! If it touches the soil of the mortal realm,
+     every living seed shall burn into nonexistence!
+
+                    INDRA
+     Then who can stop it? Can Vishnu not slay it?
+
+                    BRAHMA
+     Vishnu sustains the universe—if He drinks it, the
+     world inside Him perishes! 
+     There is only One who possesses nothing, desires
+     nothing, and fears nothing! 
+     FLEE TO KAILASH! PLEAD BEFORE MAHADEVA!
+
+The armies break. Devas and Asuras, former conquerors and proud gods, drop their weapons and scramble across the burning sands, running for their lives as the black cloud of doom rolls across the sky behind them.

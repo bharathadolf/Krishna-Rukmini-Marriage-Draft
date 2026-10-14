@@ -1,0 +1,82 @@
+# 🎬 SCREENPLAY SCENE 12: THE SACRIFICE OF NEELAKANTHA
+
+**EXT. SLOPES OF MOUNT KAILASH / BOILING SHORE - DAY**
+
+A terrifying contrast of realms: 
+The pure, glacial white peaks of Mount Kailash are being devoured by swirling, violet-black fingers of toxic Halahala smoke.
+
+SEATED IN PADMASANA UPON A TIGER SKIN—
+
+LORD SHIVA (Mahadeva). 
+Naked to the waist, covered in pale sacred ash (*Bhasma*). Matted hair crowned with the crescent moon. A cobra coiled peacefully around His neck. His eyes are half-closed in unmoving, timeless meditation.
+
+BESIDE HIM SITS—
+
+GODDESS PARVATI. Regal, serene, wrapped in deep ochre silk, Her golden gaze watching the screaming sky.
+
+CRAWLING UP THE FROZEN SLOPES—
+
+Indra, Bali, Brahma, and the burned survivors of the cosmic armies collapse onto their faces before the ascetic lord.
+
+                    BRAHMA
+     O Mahadeva! Lord of Yogis! The ocean has yielded
+     its darkest secret! The poison of desire consumes
+     the worlds! If Thou dost not drink the fire,
+     creation perishes this hour!
+
+Shiva slowly opens His three eyes. 
+They hold no fear. No anger. Only an infinite, unfathomable well of compassion. 
+He looks at Parvati. A silent dialogue passes between the eternal consort and Her Lord.
+
+Parvati nods slowly. Her eyes glisten with divine sorrow, but Her chin remains high.
+
+                    PARVATI
+     Go, My Lord. Swallowing the sorrow of the
+     world is the duty of the Father.
+
+Shiva rises. He does not take a weapon. Barefoot, He strides down the mountain slopes, stepping straight into the boiling, smoking black surf of the ocean.
+
+AT THE EDGE OF THE VENOM—
+
+The pool of Halahala sizzles, sending sparks of corrosive acid into the air. 
+
+Shiva bends down. 
+HE CUPS HIS BARE PALMS INTO THE POOL OF DEATH.
+The black-blue liquid fills His cupped hands, bubbling violently, trying to dissolve His flesh. Shiva’s hands do not flinch.
+
+HE BRINGS HIS PALMS TO HIS LIPS.
+
+AND DRINKS THE ENTIRE OCEAN OF POISON LIKE WATER.
+
+*HISSSSSSSSSSSSSSSSSSSSS.*
+
+A sound like water hitting white-hot iron. 
+
+As the lethal venom races down Shiva’s throat—
+
+PARVATI APPEARS BESIDE HIM. 
+Her divine golden hand reaches out with lightning precision. 
+
+SHE GRIPS SHIVA’S THROAT TIGHTLY WITH HER FINGERS.
+
+                    PARVATI (CONT'D)
+     Stop here, Kalakuta! By the power of the Mother,
+     thou shalt not descend into the belly where the
+     living worlds reside!
+
+Shiva engages His internal ascetic stillness (*Tapas*). 
+The poison is trapped. It cannot go down into His stomach. It cannot spill back out of His mouth.
+
+BEFORE THE ASTONISHED EYES OF THE HOSTS—
+
+Shiva’s fair throat BURNS. 
+The skin darkens from pale gold into bruised midnight, then into deep, radiant, luminescent COBALT BLUE.
+
+*NEELAKANTHA.* The Blue-Throated Savior.
+
+Shiva exhales. A tiny wisp of harmless blue steam curls from His lips. 
+A few stray droplets slip through His fingers into the surf—snakes, scorpions, and toxic roots greedily lap them up, claiming their earthly venom.
+
+The black cloud clears from the sky. 
+The sunlight breaks through, pure and golden. 
+Shiva smiles, serene, untouched. The Three Worlds fall to their knees in weeping reverence.

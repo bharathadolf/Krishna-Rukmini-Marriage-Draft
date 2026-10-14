@@ -1,0 +1,66 @@
+# 🎬 SCREENPLAY SCENE 10: KURMA AVATAR — THE BASALT FOUNDATION
+
+**EXT. THE DEEP ABYSS BENEATH THE OCEAN OF MILK - CONTINUOUS**
+
+Below the frothing white waves lies an infinite, silent abyss of luminous liquid ether.
+
+Plunging downward like a falling meteor:
+THE CRUSHING MASS OF MOUNT MANDARA.
+Its jagged basalt root tears through the underwater currents, tumbling into the bottomless void.
+
+OUT OF THE BLUE-BLACK DEEP—
+
+A radiant sphere of golden divine light expands.
+
+LORD VISHNU dissolves His four-armed form into the water. 
+
+FROM THAT DISSOLUTION MANIFESTS—
+
+KURMA AVATAR.
+A cosmic entity of unimaginable scale. 
+A titanic divine TORTOISE, a hundred thousand yojanas across. 
+His carapace is composed of indestructible cosmic basalt, veined with glowing diamond striations and ancient planetary runes. His ancient, serene eyes reflect the birth of galaxies.
+
+Kurma glides smoothly upward through the milky currents, positioning His vast, rounded shell directly beneath the falling mountain.
+
+THE COLLISION—
+
+*THUDDDDDDDDDDDDD.*
+
+A deep-frequency sub-bass shockwave reverberates through the foundations of creation. 
+The jagged, razor-sharp base of Mount Mandara strikes the dead center of Kurma’s shell.
+
+THE MOUNTAIN COMES TO AN INSTANT, PERFECT HALT.
+Kurma does not sink. He does not yield an inch. 
+The mountain sits upon the divine shell like an axle locked into a diamond hub. 
+
+Kurma blinks slowly. The unbearable weight of the continental massif feels like nothing more than a speck of dust upon His back.
+
+ON THE OCEAN SURFACE—
+
+Gods and Asuras stare in stunned awe as the golden summit of Mount Mandara EXPLODES BACK OUT OF THE WATER!
+It rises higher, firmer, more unyielding than before.
+
+ABOVE THE MOUNTAIN—
+
+A golden, four-armed manifestation of LORD VISHNU materializes atop the highest peak, pressing His index finger onto the summit to keep it balanced from above.
+
+SIMULTANEOUSLY—
+
+Invisible streams of blue light flow from the ocean into the chests of the exhausted Devas, filling their lungs with renewed divine stamina.
+Another stream enters the Asuras, keeping their colossal titan pride focused on the labor.
+Another stream enters the spine of Vasuki, numbing the agony of his stretched vertebrae.
+
+The Voice of Vishnu thunders across the cosmos:
+
+                    VOICE OF VISHNU
+     THE AXIS IS HELD! PULL, CHILDREN OF CREATION!
+     PULL WITH THE POWER OF DHARMA!
+
+Bali lets out a war cry that shatters the sky.
+Indra roars.
+
+THE ARMIES HEAVE!
+
+The mountain spins back to life with ten times its former velocity, its base grinding against Kurma’s shell with the sound of a roaring cosmic millstone. 
+Under the water, Kurma’s eyes close in blissful peace—the friction of the spinning mountain feels like a soothing scratching against His shell.

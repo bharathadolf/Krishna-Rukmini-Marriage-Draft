@@ -1,0 +1,69 @@
+# 🎬 SCREENPLAY SCENE 01: THE PRIDE OF AMARAVATI
+
+**FADE IN:**
+
+**EXT. AMARAVATI - CELESTIAL PROMENADE - DAY (SATYA YUGA)**
+
+The sky is a radiant expanse of molten amber and spun silk. Floating crystalline spires pierce the upper stratosphere, connected by arches of solid rainbow.
+
+Thousands of DEVA COURTIERS and APSARAS line the golden highway, cheering. Petals of Parijata flowers rain through the warm air, turning to sparkling embers before touching the flawless marble flagstones.
+
+ATOP A COLOSSAL ELEPHANT—
+
+AIRAVATA. Four ivory tusks curving toward the sun. A mountain of muscle draped in golden armor and silk brocade.
+
+SEATED IN THE JEWELED HOWDAH—
+
+INDRA (30s in immortal appearance). Radiance pouring from every pore. Clad in diamond breastplate and emerald-crested crown. His fingers casually roll a gold cup of Soma wine. His eyes are heavy with boredom and absolute supremacy.
+
+AT THE ELEPHANT’S FLANK—
+
+MATALI, the celestial charioteer, walks beside the tusker, holding the reins of Indra's battle car.
+
+                    INDRA
+          (calling down, smirking)
+     Matali! Tell me—in all the records of the
+     sages, has any king ever held a realm so
+     peaceful, so entirely devoid of threat?
+
+                    MATALI
+          (bowing slightly, measured)
+     None, My Lord. The Asuras remain broken in the
+     subterranean dark. The mortals offer their daily
+     oblations without question.
+
+Indra takes a leisurely sip of wine, looking out over the limitless expanse of his celestial capital.
+
+                    INDRA
+     Peace is not given, Matali. It is seized. The
+     universe recognizes strength. We are the gods
+     because we conquered.
+
+Indra casually raises his right hand. Between his knuckles, a sharp crack of BLUE LIGHTNING flickers—the VAJRA. He points it playfully toward a distant white cloud.
+
+*CRACK!*
+
+The lightning strikes the cloud. A shower of iridescent pearls cascades onto the laughing courtiers below. They scramble to gather the gems, chanting Indra's name in ecstatic worship.
+
+Indra laughs—a sound devoid of reverence. Pure ego.
+
+                    INDRA (CONT'D)
+     Time is a wheel, they say. But they forget: the
+     wheel turns beneath the feet of my elephant!
+
+Matali looks ahead down the avenue. His eyes narrow. His posture stiffens.
+
+                    MATALI
+     My Lord... look.
+
+Indra doesn't look down. He refills his goblet.
+
+                    INDRA
+     What is it? Another Gandharva seeking a boon?
+
+                    MATALI
+     No, My Lord. A wanderer.
+
+Through the shimmering heat-haze at the end of the promenade, a solitary, dust-covered silhouette walks against the festive tide.
+
+**CUT TO:**
